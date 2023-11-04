@@ -10,3 +10,7 @@
 
 ![image](https://github.com/C191068/Ali_n_controller/assets/89090776/81292e77-a120-412f-b24f-614b335b40a6)
 
+![image](https://github.com/C191068/Ali_n_controller/assets/89090776/17f0fd34-9cc5-4bd8-846b-fc767d5c7f08)
+
+
+![image](https://github.com/C191068/Ali_n_controller/assets/89090776/21fc4f35-fc85-41e0-b29b-ef7881d90d97)
