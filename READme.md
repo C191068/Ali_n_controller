@@ -14,3 +14,8 @@
 
 
 ![image](https://github.com/C191068/Ali_n_controller/assets/89090776/21fc4f35-fc85-41e0-b29b-ef7881d90d97)
+
+![image](https://github.com/C191068/Ali_n_controller/assets/89090776/fe76c902-c460-493e-9ff1-e2969bec9948)
+
+
+
